@@ -1,1 +1,9 @@
 # N3_AUCTIONJEWELRY_SWT
+
+![image](https://github.com/huy1412/N3_AUCTIONJEWELRY_SWT/assets/142949926/a786d787-3d13-4ef9-868e-2c965b571978)
+
+![image](https://github.com/huy1412/N3_AUCTIONJEWELRY_SWT/assets/142949926/70890c95-c856-4599-a007-e6529d893cb0)
+
+![image](https://github.com/huy1412/N3_AUCTIONJEWELRY_SWT/assets/142949926/8a0c1ed2-d76d-4088-9608-2792f89b38bd)
+
+
